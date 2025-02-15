@@ -1,0 +1,1 @@
+# laparak_iot_minggu1_gunawandanyarto
